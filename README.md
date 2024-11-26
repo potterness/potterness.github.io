@@ -1,1 +1,1 @@
-Work in progress. Please visit potterness.blog in the meantime!
+Work in progress. Please visit https:/potterness.blog in the meantime!
