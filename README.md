@@ -1,1 +1,1 @@
-Work in progress. Please visit https://paddyotterness.wordpress.com/ in the meantime!
+Work in progress. Please visit potterness.blog in the meantime!
